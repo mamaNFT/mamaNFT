@@ -1,1 +1,1 @@
-## Welcome to mama unique NFT
+## Still studying
